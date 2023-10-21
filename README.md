@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OmenaYT20
-- 👀 I’m interested in Computers
+- 👀 I’m interested in Computers and viruses
 - 🌱 I’m currently learning Computers
 - 💞️ I’m looking to collaborate on No one
 - 📫 How to reach me On Youtube OmenaYT20 Tech Channel OmppuTech
